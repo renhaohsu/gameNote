@@ -113,5 +113,3 @@ https://allb.game-db.tw/memoria
 
 
 
-
-https://yukihane.work/fan-yi/assaultlily-memoria-hoshifuruyoru-no-yakusoku
