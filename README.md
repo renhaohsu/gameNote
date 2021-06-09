@@ -1,0 +1,2 @@
+# gameNote
+ guildmasterscards
